@@ -7,7 +7,7 @@
 
 - GitHub: [@sofius10](https://github.com/sofius10)
 - Correo: sofius210@gmail.com
-- Instagram: [@sofius_10] (https://Instagram.com/sofius_10)
+- Instagram: [@sofius_10](https://instagram.com/sofius_10)
 
 * 🛠️ Tecnologías que uso y estoy aprendiendo:
 
